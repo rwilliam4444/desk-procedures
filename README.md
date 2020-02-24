@@ -1,1 +1,1 @@
-# Desk-procedures written by Richard Williams
+# Desk Procedures written by Richard Williams
